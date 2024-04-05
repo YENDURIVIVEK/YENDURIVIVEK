@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding,testing.
 - 🌱 I’m currently learning Artificial intelligence and Machine learning
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 218x1a42b3@khitguntur.ac.in, @nameisviveky
+- 📫 How to reach me vivek.hero4ever@gmail.com , @nameisviveky
 - 😄 Pronouns: vivek
 - ⚡ Fun fact: I discovered that kaikala satyanarayana shares my birthday.
 
